@@ -1,0 +1,1 @@
+# applied-finance-exercises
